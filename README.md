@@ -1,11 +1,11 @@
 # 机场推荐
-翻墙喵（不限时套餐）：[点击跳转到翻墙喵注册账号](https://dwz.mk/636feu)
+翻墙喵（不限时套餐）：[点击跳转到翻墙喵注册账号](https://dash.fqm.lol/#/register?code=CqyqCfXE)
 
-TNTV2（有永久套餐）：[点击跳转到TNTV2注册账号](https://dwz.mk/nUJBNb)
+TNTV2（有永久套餐）：[点击跳转到TNTV2注册账号](https://xn--qiqy1fm6cexdzr4k.xyz/auth/register?code=xuRW)
 
-一元机场（低至11元/年）：[点击跳转到一元机场注册账号](https://dwz.mk/FzArqe)
+一元机场（低至11元/年）：[点击跳转到一元机场注册账号](https://xn--4gq62f52gdss.com/#/register?code=NuL3QpNk)
 
-白嫖机场（低价+免流）：[点击跳转到白嫖机场注册账号](https://dwz.mk/6nmiaa)
+白嫖机场（低价+免流）：[点击跳转到白嫖机场注册账号](https://白嫖机场.club/#/register?code=901GMXY4)
 
 电报联系：https://t.me/LinQinkui_bot
 
