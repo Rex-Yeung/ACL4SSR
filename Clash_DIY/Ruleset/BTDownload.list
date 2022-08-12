@@ -1,0 +1,5 @@
+# Mac Download
+PROCESS-NAME,bitComet.exe
+PROCESS-NAME,bitComet_x64.exe
+PROCESS-NAME,qbitTorrent.exe
+PROCESS-NAME,uTorrent.exe
